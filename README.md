@@ -2,4 +2,4 @@
 
 You can download the PPT by accessing the below link
 
-https://amritavishwavidyapeetham-my.sharepoint.com/:p:/g/personal/cb_en_u4aie19040_cb_students_amrita_edu/Ea-eSEkqsm9OtKRGy63XzmgB32hnQ_-_N8t7h8wU9_eEZg?e=sRcm8t
+https://docs.google.com/presentation/d/1Utjvlzp1J9yj0-djBvyO7kyEZ2T15sVW/edit?usp=sharing&ouid=114549870059950921892&rtpof=true&sd=true
